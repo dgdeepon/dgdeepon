@@ -1,5 +1,6 @@
-![68747470733a2f2f696e646f616e616c79746963612e636f6d2f7374617469632f696d616765732f62616e6e6572722e676966](https://user-images.githubusercontent.com/107040689/218307484-b506cd84-fc36-4d4b-b513-00eacfbf35dd.gif)
 
+
+![FUll stack web developer](https://user-images.githubusercontent.com/107040689/218724129-47a08ddf-bef9-4805-97e1-028ae42acf98.gif)
 
 
 
